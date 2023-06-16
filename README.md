@@ -1,7 +1,7 @@
 ### Hi there 👋 
 
-Perkenalkan nama saya **Rahmawati Setyorini**.
+my name is **Rahmawati Setyorini**.
 
-Saya seorang **Mahasiswa** di [Gunadarma](https://www.gunadarma.ac.id/).
+I am a **Student** at [Gunadarma University](https://www.gunadarma.ac.id/).
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/setyorinirahmarw/)ku ya.
+If you are interested in to know me better, this is my [Linkedin](https://www.linkedin.com/in/setyorinirahmarw/) account.
